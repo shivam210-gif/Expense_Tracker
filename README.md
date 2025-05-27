@@ -1,0 +1,1 @@
+💸 Take control of your finances with this intuitive web app — effortlessly track your daily expenses, categorize spending, and gain insights through dynamic pie chart visualizations. Make adjustments on the go and stay on top of your budget with ease!
